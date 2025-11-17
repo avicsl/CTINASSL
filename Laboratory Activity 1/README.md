@@ -1,1 +1,1 @@
-***Access here:*** https://avicsl.github.io/CTINASSL/Laboratory Activity 1/resume
+***Access here:*** https://avicsl.github.io/CTINASSL/Laboratory-Activity-1/resume
